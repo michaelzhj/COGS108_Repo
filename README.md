@@ -1,3 +1,3 @@
 # COGS108_Repo
 cogs108
-Could you plus give me all point ❤️
+Could you pls give me all point ❤️
